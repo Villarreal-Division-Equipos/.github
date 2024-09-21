@@ -32,7 +32,7 @@ Explora nuestros [Cursos y Eventos](https://www.vde.com.mx/cursos-y-eventos) par
 Si tienes alguna pregunta, sugerencia o simplemente quieres decir hola, ¡no dudes en contactarnos en nuestras redes sociales!
 
 - **Facebook**: [@vde.mexico](https://www.facebook.com/vde.mexico/)
-- **Twitter**: [@vde.mx](https://www.instagram.com/vde.mx/)
+- **Instagram**: [@vde.mx](https://www.instagram.com/vde.mx/)
 - **Youtube**: [Villarreal División Equipos](https://www.youtube.com/channel/UCxcHuluSvCpHELVYnJNFxnA)
 
 ---
